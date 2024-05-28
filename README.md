@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @parth1228
 - 👀 I’m interested in .web devloping,..
 - 🌱 I’m currently learning python,java...
-- @ How to reach me 9873352559,kaushikp1228@gmail.com
+- @ How to reach me kaushikp1228@gmail.com
 -
 - 
 
